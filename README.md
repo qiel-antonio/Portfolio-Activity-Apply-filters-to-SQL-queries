@@ -12,3 +12,4 @@ the lab
 Be sure to complete this activity and answer the questions that follow before moving on. The next course item will provide you with a completed exemplar to compare to your own work.
 
 To Access my file, click on the link below:
+https://drive.google.com/drive/folders/1nhpBeDIgZwJo44MjE5kGatBF0UQ1sbE5?usp=drive_link
